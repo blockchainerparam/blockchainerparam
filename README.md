@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...BlockChain Technology
 - 💞️ I’m looking to collaborate on ...Everything
 - 📫 How to reach me ...My Number 9022864200
-- 😄 Pronouns: ...Param
+- 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...Technologyis word
 
 <!---
